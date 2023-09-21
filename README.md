@@ -11,7 +11,7 @@
 
 👩‍💻 Atualmente eu trabalho como Petsitter pela plataforma Pet Anjo e freelo como DJ de vez em quando
 
-🔎 Também sou curiosa sobre linguagem lua e roblox script
+🔎 Também sou curiosa sobre linguagem lua, roblox script e mandarim (estudei por 4 anos e realizei um curso de verão na Universidade de Hubei)
 
 ✒️ Eu gosto de no meu tempo livre jogar um game, estudar, maquiar e tomar um chazinho no bairro da Liberdade em SP
 
